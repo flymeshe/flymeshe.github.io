@@ -1,5 +1,5 @@
-# 学习，为了拥抱更好的明天 :link: https://lcs2019.top 
-### :page_facing_up: [1](https://lcs2019.top) 
+# 学习，为了拥抱更好的明天 :link: https://lcs2019.top/ 
+### :page_facing_up: [1](https://lcs2019.top/) 
 ### :speech_balloon: 0 
 ### :hibiscus: 16 
 ### :alarm_clock: 2024-06-23 20:59:40 
