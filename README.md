@@ -1,5 +1,5 @@
-# 学习，为了拥抱更好的明天 :link: https://flymeshe.github.io 
-### :page_facing_up: [1](https://flymeshe.github.io/tag.html) 
+# 学习，为了拥抱更好的明天 :link: https://lcs2019.top
+### :page_facing_up: [1](https://lcs2019.top) 
 ### :speech_balloon: 0 
 ### :hibiscus: 16 
 ### :alarm_clock: 2024-06-24 11:42:14 
